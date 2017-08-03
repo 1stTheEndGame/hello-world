@@ -1,2 +1,2 @@
 # hello-world
-Yo, Im being voluntarily forced to do this.(:
+Yo, I am voluntarily, being forced to do this.(:
